@@ -1,0 +1,1 @@
+"Lionel Messi nacio el 24 de junio de 1987 en Rosario, Argentina. Desde muy peque mostro un talento unico para el fubol. A los 10 aos enfrent un gran reto al ser diagnosticado con un problema de crecimiento, pero su talento lo llev a viajar a Espana para triunfar con el FC Barcelona y conquistar el mundo"
